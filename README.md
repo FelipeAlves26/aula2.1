@@ -2,6 +2,7 @@
 Primeiro Trabalho
 
 Tony ramos  
-Carolina dickman  
+Cléo Pires  
 Daniel Hadclif
 
+Suzana Vieira
