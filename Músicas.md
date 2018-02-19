@@ -1,4 +1,5 @@
 Mulher de fases 
 By the way
-used to lover
-l
+I used to love her
+otherside
+
